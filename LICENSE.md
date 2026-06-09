@@ -1,4 +1,4 @@
-# 
+# Atualizado Revo Uninstaller plugins para Mac OS | Melhor Revo Uninstaller plugins para PC Windows. Com visualizacao de dados e historico de versoes — otimizado para máximo desempenho em cada plataforma.
 
 
 
